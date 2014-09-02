@@ -7,3 +7,4 @@ Try to be the one who live in your world. You should be the king in your own wor
 Learn others' goodness and refine yourself day by day.
 You will be successful. Don't be sensitive, just be careful, but let something that's not satisfying go.
 Be a good man and a clever man.
+I will finish it very quickly and I will do it well.
